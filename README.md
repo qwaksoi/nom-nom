@@ -3,7 +3,7 @@
 
 <img src="https://capsule-render.vercel.app/api?type=waving&color=0:171229,50:24004D,100:f0df65&height=180&section=header&text=!%20AAAAAAA%20!&fontSize=38&fontColor=f0df65&animation=fadeIn&fontAlignY=40" width="100%"/>
 
-<img src="Без названия222_20260905232334.png" width="100%">
+<img src="Без названия222_20260905234405.png" width="100%">
 
 <br>
 
