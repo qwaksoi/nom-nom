@@ -1,22 +1,23 @@
 # nom-nom
 <div align="center">
 
-<img src="https://capsule-render.vercel.app/api?type=waving&color=0:171229,50:24004D,100:f0df65&height=180&section=header&text=!%20AAAAAAA%20!&fontSize=38&fontColor=f0df65&animation=fadeIn&fontAlignY=40" width="100%"/>
+<img src="https://capsule-render.vercel.app/api?type=waving&color=0:7F230C,50:5A5738,100:6D5B35&height=180&section=header&text=ㅤ%20ㅤ%20ㅤ&fontSize=38&fontColor=f0df65&animation=fadeIn&fontAlignY=40" width="100%"/>
 
-<img src="Без названия222_20260905234405.png" width="100%">
 
 <br>
 
-# （ >̶̩ ⌓̵ <̶̩ ）hi
+# （ >̶̩ ⌓ <̶̩ ）𝘲𝘸⩩⏎⏎
 
 ### som, idk
 
  `hi/him`　 `music`　 `games`　 `idk som`
 
 <br>
+▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞
+<img src="Без названия222_20260905234405.png" width="100%">
+<img src="Без названия222_20260905234405.png" width="100%">
 
- ───────────────────────────── 
-
+ ▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞
 ## about som again 
 
 >  !! welcome to my profile   
@@ -28,8 +29,7 @@
 
 <br>
 
-୨୧ ───────────────────────────── ୨୧
-
+＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿
 <details>
 <summary> idkkkkk </summary></summary>
 
