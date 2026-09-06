@@ -18,28 +18,22 @@
 <img src="Без названия222_20260905234405.png" width="100%">
 
  ▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞
-## about som again 
+## about som , lattrrr 
 
->  !! welcome to my profile   
-> i'm just here doing silly things(wtf testerrr
+>  !! hm
+> i'm just here doing silly thingsnsjdndjjdnd
 
 <br>
 
- facts down and som
-
+ uhh
 <br>
 
 ＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿
 <details>
-<summary> idkkkkk </summary></summary>
+<summary> 👀 </summary></summary>
 
 <br>
+<img src="Без названия222_20260905234405.png" width="100%">
 
 ```text
-        nomnomnom
-
-             idkkkkk
-
-ㅤㅤㅤㅤㅤㅤykrasheniyaaaa
-
-         idk again 
+            ohno
