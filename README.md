@@ -33,6 +33,6 @@
 <summary> 👀 </summary></summary>
 
 <br>
-<img src="Без названия224_20260906130648.png" width="25">
+<img src="nonononowaitwaitwa_20260906143359.png" width="25">
 
   wait, lemme put on my glasses...👀👀
