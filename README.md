@@ -8,9 +8,9 @@
 
 # （ >̶̩ ⌓ <̶̩ ）𝘲𝘸⩩⏎⏎
 
-### som, idk
+### hii I'm a v̳e̳r̳y̳ a̳n̳x̳i̳o̳u̳s̳ p̳e̳r̳s̳o̳n̳, so interacting with people can be difficult for me. ˢᵒʳʳʸ ᶠᵒʳ ᵐʸ ᵇᵃᵈ ᴱᴺᴳ
 
- `hi/him`　 `music`　 `games`　 `idk som`
+ `𝓱𝓲 ⑊ 𝓱𝓲𝓶`　 `qwaksoi/qw/soi BUT NOT QWAK` 
 
 <br>
 ▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞
